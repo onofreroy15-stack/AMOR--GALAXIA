@@ -1,1 +1,1 @@
-# AMOR--GALAXIA
+# amor-galaxia
